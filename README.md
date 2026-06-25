@@ -6,5 +6,6 @@
 - Sonho em cursar biomedicina 
 - Adoro ouvir musica 🎼
   
-![](https://media.tenor.com/HXanH5etpUUAAAAC/rain-dance.gif)
+
 ![](https://media.tenor.com/hg0spIMjqT8AAAAm/cryptoadz-vibes.webp)
+![](https://media.tenor.com/-kzfHxU302YAAAAM/caroline-forbes-flirting-with-enzo.gif)
